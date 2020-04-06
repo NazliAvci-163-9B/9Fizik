@@ -31,3 +31,9 @@ In 100 grams
 1 serving (250 g)
 425 kcal
 
+Ailemin vücut kitle endeksi:
+Babam--->28.65
+Annem--->34.77
+Abim--->25.51
+Ablam--->27.89
+Ben--->19.57

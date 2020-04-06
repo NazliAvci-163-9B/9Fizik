@@ -23,7 +23,7 @@ Quince dessert
 100gr cream
 
 HOW TO COOK?:
-Quices well washed and peeled after cleaning, divided in half seeds removed. Quince, the center of eac is poured into a cup of sugar and placed in water to cover. Cook on low heat for an hour or so. After cooling, the mixture is served with quinces on the serve.
+Quinces well washed and peeled after cleaning, divided in half seeds removed. Quince, the center of eac is poured into a cup of sugar and placed in water to cover. Cook on low heat for an hour or so. After cooling, the mixture is served with quinces on the serve.
 
 Calorie Information
 In 100 grams
